@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @EkpenoEkong
+- 👀 I’m a Data Analysis enthusiast
+- 💞️ I’m looking to collaborate on data projects
+- 📫 How to reach me here or on my twitter @_ekpeno
